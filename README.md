@@ -39,6 +39,6 @@ Desarrollador con sólida formación en Ingeniería Informática, orientado al d
 
 ### Contacto y Redes
 
-- **LinkedIn:** [linkedin.com/in/tu-usuario](https://linkedin.com)
+- **LinkedIn:** (https://Instagram.com/Gabriellsanchezt)
 - **GitHub:** [@Gabriellsanchezt](https://github.com/Gabriellsanchezt)
-- **Email:** tu-correo@ejemplo.com
+- **Email:** Gabriell.sancheztg@gmail.com
